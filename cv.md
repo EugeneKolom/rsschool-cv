@@ -1,6 +1,7 @@
 # **KOLOMITCEV**
 ## EVGENIY
 ### JUNIOR WEB DEVELOPER
+![Моё фото](/RollingScopes/rsschool-cv/images/me.jpg)
 
 =====================
 #### **CONTACTS**
