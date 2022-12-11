@@ -10,7 +10,7 @@
 
 #### **EDUCATION**
 DONETSK NATIONAL UNIVERSITY in Donetsk Ukraine
-speciality "ECONOMICAL CYBERNETICKS" 2002 - 2007 yy
+speciality "ECONOMICAL CYBERNETICS" 2002 - 2007 yy
 
 #### **ABOUT**
 Working long time as buisness owner in advertisment direction:
